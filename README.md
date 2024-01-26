@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @madhurima
-- 👀 I’m interested in trends patter flow chart
+- 👀 I’m interested in Trends Patter Flow chart
 - 🌱 I’m currently learning java script
 - 💞️ I’m looking for a full time position
 - 📫 How to reach me +4917664159879
